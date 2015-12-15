@@ -35,4 +35,4 @@ http://www.xiami.com/album/296062?spm=a1z1s.6659513.226669510.14.EHkvHT&from=sea
 http://www.xiami.com/album/210693?spm=a1z1s.6928801.226669510.14.XaJNcV&from=search_popup_album
 
 -
- tell me which ones you like the most, which one you dislike the most, and which one gives you the most amount of inspiration.
+tell me which ones you like the most, which one you dislike the most, and which one gives you the most amount of inspiration.
