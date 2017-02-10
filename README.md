@@ -1,1 +1,1 @@
-##Speed/Thrash Metal Music Open Source Project by [Slashing Machine](http://i.xiami.com/slashingmachine){:target="_blank"}
+##Speed/Thrash Metal Music Open Source Project by [Slashing Machine](http://i.xiami.com/slashingmachine)
